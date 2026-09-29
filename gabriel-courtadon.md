@@ -1,0 +1,3 @@
+Je suis à 06/10 sur le masque physique mais peut-être un peu moins sinon. 
+Est ce que vous croyez en la théorie des initiales : Ronaldo Nazario (RN) jouait il déjà en 2002 ? 
+Je ne fais que poser la question...
